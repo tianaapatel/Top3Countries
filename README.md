@@ -8,3 +8,4 @@ Switzerland was one of my favorite places that I visited. I found it so fascinat
 
 ### 2. Italy
 In Italy, we did a lot of swimming activities where and travelled to different cities. I admired the architecture and the colorful buildings that made the city more lively. One of my favorite activities was midnight swimming. It was so pretty at night, with the moonn at the center
+![midnight](IMG_4490.JPG)
