@@ -1,4 +1,4 @@
-
+## Top 3 Countries To Visit
 ### **1.  SWITZERLAND**
 ![image](https://switzerland-tour.com/images/city/zurich-top/Lake-Zurich.jpg)
 During my time in Switzerland, I went on numerous adventures with my friends. One of my favorite memories in Switzerland was pedal boating in the bay.Switzerland was one of my favorite places that I visited. I found it so fascinating how the water was absolutely so refreshing and it was so good, Zurich water to be exact. Everything about Switzerland was so refreshing and a clean environment. I wish I could breathe that air **FOREVER**!
