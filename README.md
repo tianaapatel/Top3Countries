@@ -1,5 +1,3 @@
-# MY TOP 3 FAVORITE COUNTRIES TO VISIT
-
 ### **1. SWITZERLAND**
 ![image](https://switzerland-tour.com/images/city/zurich-top/Lake-Zurich.jpg)
 
