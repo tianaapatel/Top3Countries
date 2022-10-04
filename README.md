@@ -1,5 +1,4 @@
 # MY TOP 3 FAVORITE COUNTRIES TO VISIT
-I have been to 15 countries throughout my entire life. There have been countries that I have been able to connect with strong 
 
 ### **1. SWITZERLAND**
 ![image](https://switzerland-tour.com/images/city/zurich-top/Lake-Zurich.jpg)
