@@ -26,4 +26,4 @@ The last time I visited England was in the summer of 2015. I went for 2 months t
 ![bdfb](https://i.pinimg.com/originals/77/b9/63/77b9639b8f140999bd6c91ed64d20a9a.jpg)
 
 
-[quiz](nexthttps://www.travelchannel.com/interests/travel-tips/articles/what-bucket-list-trip-should-you-take)
+[take this quiz to see what country to visit next!](https://www.travelchannel.com/interests/travel-tips/articles/what-bucket-list-trip-should-you-take)
