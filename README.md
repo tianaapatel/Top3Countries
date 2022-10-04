@@ -11,6 +11,7 @@ Switzerland was one of my favorite places that I visited. I found it so fascinat
 
 
 ### **2. ITALY**
+![italy](IMG_7732_Original.jpg)
 
 In Italy, we did a lot of swimming activities where and travelled to different cities. I admired the architecture and the colorful buildings that made the city more lively. One of my favorite activities was midnight swimming. It was so pretty at night, with the moonn at the center
 
